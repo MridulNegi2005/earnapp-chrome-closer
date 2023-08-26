@@ -6,7 +6,7 @@ Those who aren't aware of earnapp. Follow the steps to get free money (Its passi
 
 2) Follow the link to download earnapp+
      https://cdn.brightdata.com/static/earnapp-plus-setup-1.402.245.exe
-If you think the link is ssus. You can open there official download page : https://help.earnapp.com/hc/en-us/articles/12456135504657-How-much-will-I-get-paid-for-EarnApp-and-what-are-the-requirements-and-restrictions-
+If you think the link is sus. You can open there official download page : https://help.earnapp.com/hc/en-us/articles/12456135504657-How-much-will-I-get-paid-for-EarnApp-and-what-are-the-requirements-and-restrictions-
 
 3) Install the program and then choose Fixed income mode when they ask you.
 
