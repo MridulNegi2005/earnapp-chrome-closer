@@ -1,4 +1,4 @@
-# earnapp-chrome-closer
+# Earnapp Chrome Closer
 
 Those who aren't aware of earnapp. Follow the steps to get free money (Its passive income, so expect it to be low!)
 1) Create a earnapp account through this link : https://earnapp.com/i/zfscm2a . DON'T DOWNLOAD THE APP YET!
